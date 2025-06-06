@@ -32,9 +32,8 @@ Apart of a Bad Sans group of 9! (I am Dust!)
   <img src="https://64.media.tumblr.com/a96517729232fd1e21bbc911a3e428c5/fb1e3a3e2e7af7f4-e6/s640x960/cb7e53250c0cf878d623293603cf005d5894c661.pnj" />
 </p>
 
-
 <p align="center">
-Apart of a Bad Sans group of 9! (I am Dust!)
+  <a href="https://github.com/rottingvirus" target="_blank">made my my good friend, Blue!</a>
 </p>
 
 
