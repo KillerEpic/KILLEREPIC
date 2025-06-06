@@ -33,7 +33,7 @@ Apart of a Bad Sans group of 9! (I am Dust!)
 </p>
 
 <p align="center">
-  <a href="https://github.com/rottingvirus" target="_blank">made my my good friend, Blue!</a>
+  <a href="https://github.com/rottingvirus" target="_blank">made by my good friend, Blue!</a>
 </p>
 
 
