@@ -25,7 +25,7 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 Lesbian!
 
 <p align="center">
-Apart of a Bad Sans group of 9! (I am Dust!)
+Apart of a Bad Sans group of 10! (I am Dust!)
 </p>
 
 <p align="center">
