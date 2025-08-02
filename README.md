@@ -13,7 +13,7 @@
 
 
 <p align="center">
-Names I go by: Killz / Dust / Cay / Chromo / Epic (Or the Sans I am)
+Names I go by: Killz / Builderman / Cay / Chromo / Epic (Or the character/sans i am!)
 
 <p align="center">
 Pronouns: She/Her (Or he if in character)
@@ -28,12 +28,18 @@ Lesbian!
 Apart of a Bad Sans group of 10! (I am Dust!)
 </p>
 
+
+<p align="center">
+  <img src="https://i1.sndcdn.com/artworks-TUnyBqt7xPnWzF7N-zUqTgg-t500x500.jpg" width="100" />
+</p>
+
+
 <p align="center">
   <img src="https://64.media.tumblr.com/a96517729232fd1e21bbc911a3e428c5/fb1e3a3e2e7af7f4-e6/s640x960/cb7e53250c0cf878d623293603cf005d5894c661.pnj" />
 </p>
 
 <p align="center">
-  <a href="https://github.com/rottingvirus" target="_blank">made by my good friend, Blue!</a>
+  <a href="https://github.com/MafiosoC00l" target="_blank">made by my good friend, maf/blue!</a>
 </p>
 
 
