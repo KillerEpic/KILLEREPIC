@@ -13,24 +13,24 @@
 
 
 <p align="center">
-Names I go by: Killz / Builderman / Cay / Chromo / Epic (Or the character/sans i am!)
+Names I go by: Cay / Killz / Epic / Builderman (Or the Character/Sans I am!)
 
 <p align="center">
-Pronouns: She/Her (Or he if in character)
+Pronouns: She/Her (Or He if in character)
 
 <p align="center">
 Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
-Lesbian!
+Lesbian! (Single)
 
 <p align="center">
-Apart of a Bad Sans group of 10! (I am Dust!)
+Killer Sans IRL and Builderman IRL(Forsaken) | Possible MedianSys?..
 </p>
 
 
 <p align="center">
-  <img src="https://i1.sndcdn.com/artworks-TUnyBqt7xPnWzF7N-zUqTgg-t500x500.jpg" width="100" />
+  <img src="https://i.pinimg.com/1200x/c0/fe/8c/c0fe8cc4f7258e86484fe4e2bcde21af.jpg" width="200" />
 </p>
 
 
@@ -39,7 +39,7 @@ Apart of a Bad Sans group of 10! (I am Dust!)
 </p>
 
 <p align="center">
-  <a href="https://github.com/MafiosoC00l" target="_blank">made by my good friend, maf/blue!</a>
+  <a href="https://github.com/MafiosoC00l" target="_blank">Made by my good friend, Maf/Blue! <3 </a>
 </p>
 
 
