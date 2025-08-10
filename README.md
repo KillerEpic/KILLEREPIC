@@ -22,7 +22,7 @@ Pronouns: She/Her (Or He if in character)
 Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
-Lesbian! (Single)
+Pansexual
 
 <p align="center">
 Killer Sans IRL and Builderman IRL(Forsaken) | Possible MedianSys?..
