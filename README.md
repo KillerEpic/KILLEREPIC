@@ -25,7 +25,7 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 Pansexual
 
 <p align="center">
-Killer Sans IRL and Builderman IRL(Forsaken) | Possible MedianSys?..
+Killer Sans IRL and Builderman IRL(Forsaken) | MedianSys
 </p>
 
 
