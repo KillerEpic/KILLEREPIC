@@ -16,13 +16,13 @@
 Names I go by: Cay / Killz / Epic / Builderman (Or the Character/Sans I am!)
 
 <p align="center">
-Pronouns: She/Her (Or He if in character)
+Pronouns: She/Her & He/Him
 
 <p align="center">
 Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
-Pansexual
+Pansexual & Demiromantic
 
 <p align="center">
 Killer Sans IRL and Builderman IRL(Forsaken) | MedianSys
