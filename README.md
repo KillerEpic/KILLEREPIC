@@ -13,7 +13,7 @@
 
 
 <p align="center">
-Names I go by: Cay / Killz / Epic / Builderman (Or the Character/Sans I am!)
+Names I go by: Cay / Killz / Epic / Builderman 
 
 <p align="center">
 Pronouns: She/Her & He/Him
