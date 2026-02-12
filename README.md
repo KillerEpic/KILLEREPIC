@@ -7,13 +7,11 @@
 </p>
 
 
-<p align="center">
-  <img src="https://api.font-generator.com/preview/Mason/46/790000/none/Cay+%2F+Killz+%2F+Epic/e11750ddcdd27fd52b0e749f849c482e.png" />
-</p>
+
 
 
 <p align="center">
-Names I go by: Cay / Killz / Epic / Builderman 
+Names I go by: Cay / Killz / Scythe / Katana / Builderman 
 
 <p align="center">
 Pronouns: She/Her & He/Him
@@ -25,7 +23,7 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 Pansexual & Demiromantic
 
 <p align="center">
-Killer Sans IRL and Builderman IRL(Forsaken) | MedianSys
+Killer!Sans / Builderman(Forsaken) / Scythe / Katana IRL | MedianSys
 </p>
 
 
@@ -39,7 +37,7 @@ Killer Sans IRL and Builderman IRL(Forsaken) | MedianSys
 </p>
 
 <p align="center">
-  <a href="https://github.com/MafiosoC00l" target="_blank">Made by my good friend, Maf/Blue! <3 </a>
+  <a href="https://github.com/MafiosoC00l" target="_blank">Made by my good friend, Maf/Seth! <3 </a>
 </p>
 
 
