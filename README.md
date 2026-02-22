@@ -8,10 +8,11 @@
 
 
 
-
+<p align="center">
+The ScytheFang System
 
 <p align="center">
-Names I go by: Cay / Killz / Scythe / Katana / Builderman 
+Names to call us!: Killz / Scythe / Katana / Builderman / ScytheFang / ScyFang
 
 <p align="center">
 Pronouns: She/Her & He/Him
@@ -23,8 +24,10 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 Pansexual & Demiromantic
 
 <p align="center">
-Killer!Sans / Builderman(Forsaken) / Scythe / Katana IRL | MedianSys
-</p>
+Killer!Sans / Builderman(Forsaken) / Scythe / Katana IRL 
+
+<p align="center">
+Median System
 
 
 <p align="center">
