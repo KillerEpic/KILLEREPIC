@@ -40,7 +40,7 @@ Median System
 </p>
 
 <p align="center">
-  <a href="https://github.com/MafiosoC00l" target="_blank">Made by my good friend, Maf/Seth! <3 </a>
+  <a href="https://github.com/MafiosoC00l" target="_blank">Github made by my good friend, Maf/Seth! <3 </a>
 </p>
 
 
