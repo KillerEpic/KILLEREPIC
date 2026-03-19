@@ -12,7 +12,7 @@
 The ScytheFang System
 
 <p align="center">
-Names to call us!: Killz / Scythe / Katana / Builderman / ScytheFang / ScyFang
+Names to call us!: Killz / Scythe / Katana / Tara / ScytheFang / ScyFang
 
 <p align="center">
 Pronouns: She/Her & He/Him
@@ -24,7 +24,7 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 Pansexual & Demiromantic
 
 <p align="center">
-Killer!Sans / Builderman(Forsaken) / Scythe / Katana IRL 
+Killer!Sans / Builderman(Forsaken) / Scythe / Katana / Tarantula IRL 
 
 <p align="center">
 Median System
