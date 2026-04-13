@@ -18,7 +18,7 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 https://pronouns.cc/@ScytheFang
 
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/c0/fe/8c/c0fe8cc4f7258e86484fe4e2bcde21af.jpg" width="200" />
+  <img src="https://i.postimg.cc/L5fnNqb0/G4Eixyy-Wk-AASY-L.jpg" width="200" />
 </p>
 
 
