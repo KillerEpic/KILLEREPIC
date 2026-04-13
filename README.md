@@ -21,7 +21,7 @@ Pronouns: She/Her & He/Him
 Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
-Pansexual & Demiromantic
+https://pronouns.cc/@ScytheFang
 
 <p align="center">
 Killer!Sans / Builderman(Forsaken) / Scythe / Katana / Tarantula IRL 
