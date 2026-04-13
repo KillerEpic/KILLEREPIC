@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/9961a204674f1c72e7af2725e336a066/fb1e3a3e2e7af7f4-f2/s640x960/589a7b0be0472a7c1eba1a4baa597477f7f3e175.pnj" />
+  <img src="https://i.postimg.cc/NFMwjZ1d/Tara.jpg" />
 </p>
 
 <p align="center">
@@ -23,7 +23,7 @@ https://pronouns.cc/@ScytheFang
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a96517729232fd1e21bbc911a3e428c5/fb1e3a3e2e7af7f4-e6/s640x960/cb7e53250c0cf878d623293603cf005d5894c661.pnj" />
+  <img src="https://i.postimg.cc/d1Nx43yy/tumblr-8ffb63375d50d4f1aea97e688cbd9a04-def85f5a-1280.png" />
 </p>
 
 <p align="center">
