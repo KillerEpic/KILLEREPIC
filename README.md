@@ -12,7 +12,7 @@
 The ScytheFang System
 
 <p align="center">
-Names to call us!: Killz / Scythe / Katana / Tara / ScytheFang / ScyFang
+Names to call us!: Killz / Sniper / Katana / Tara 
 
 <p align="center">
 Pronouns: She/Her & He/Him
