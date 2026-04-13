@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/2df04c2091827b5e455adfc12d75f246/fb1e3a3e2e7af7f4-d7/s640x960/31b3e1a0399dd73be5575f521007ac209fc272b2.pnj" />
+  <img src="https://i.postimg.cc/52v5r0Zm/ezgif-3f57dc1480c6e5ae.gif" width="400" />
 </p>
 
 
@@ -16,6 +16,9 @@ Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
 https://pronouns.cc/@ScytheFang
+  
+<p align="center">
+⚠️ Tarantula Yumeshippers IWEC!! ⚠️
 
 <p align="center">
   <img src="https://i.postimg.cc/L5fnNqb0/G4Eixyy-Wk-AASY-L.jpg" width="200" />
