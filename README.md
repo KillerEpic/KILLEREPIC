@@ -12,23 +12,10 @@
 The ScytheFang System
 
 <p align="center">
-Names to call us!: Killz / Sniper / Katana / Tara 
-
-<p align="center">
-Pronouns: She/Her & He/Him
-
-<p align="center">
 Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
 https://pronouns.cc/@ScytheFang
-
-<p align="center">
-Killer!Sans / Builderman(Forsaken) / Scythe / Katana / Tarantula IRL 
-
-<p align="center">
-Median System
-
 
 <p align="center">
   <img src="https://i.pinimg.com/1200x/c0/fe/8c/c0fe8cc4f7258e86484fe4e2bcde21af.jpg" width="200" />
