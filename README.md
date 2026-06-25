@@ -15,7 +15,7 @@ The ScytheFang System
 Please Read The Link Below Before Interacting! 
 
 <p align="center">
-Age: 17 ➪ ⚠︎︎14 UNDER DNI PLEASE⚠︎︎
+Age: 18 ➪ ⚠︎︎15 UNDER DNI PLEASE⚠︎︎
 
 <p align="center">
 https://pronouns.cc/@ScytheFang
