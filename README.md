@@ -31,6 +31,10 @@ https://pronouns.cc/@ScytheFang
 <p align="center">
   <img src="https://i.postimg.cc/d1Nx43yy/tumblr-8ffb63375d50d4f1aea97e688cbd9a04-def85f5a-1280.png" />
 </p>
+<p align="center">
+  <img src="https://i.postimg.cc/5N0xZfWj/Tara.png" width="500" />
+</p>
+
 
 <p align="center">
   <a href="https://github.com/MafiosoC00l" target="_blank"> Thanks to my friend, Don who helped me set up my first ever Github! <3 </a>
