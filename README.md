@@ -36,9 +36,7 @@ https://pronouns.cc/@ScytheFang
 </p>
 
 
-<p align="center">
-  <a href="https://github.com/MafiosoC00l" target="_blank"> Thanks to my friend, Don who helped me set up my first ever Github! <3 </a>
-</p>
+
 
 
 
